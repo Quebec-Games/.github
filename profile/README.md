@@ -1,1 +1,1 @@
-# [![Header image](https://i.imgur.com/cUwpeGI.png)](https://discord.gg/qcgames)
+# [![Header image](https://i.imgur.com/Mu72LE8.png)](https://discord.gg/qcgames)
